@@ -5,4 +5,5 @@ Em breve mais dicas *_*
 Agora a coisa ficou séria rsrsrsr
 continuação
 será que aprendi
+Olá BB eu aprendi
 
